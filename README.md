@@ -1,4 +1,4 @@
-### **APRENDA A VENDER NO MERCADO DIGITALl** 🚀
+# **APRENDA A VENDER NO MERCADO DIGITALl** 🚀
 
 Olá! Seja bem-vindo(a) ao **Ebook: Como Vender no Mercado Digital**, um projeto desenvolvido com dedicação e foco para apresentar uma visão clara e prática sobre o fascinante universo das vendas online. Este material foi criado como parte de uma avaliação acadêmica, trazendo não apenas conhecimento teórico, mas também insights aplicáveis no mundo real. 
 
